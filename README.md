@@ -1,1 +1,0 @@
-https://khusanov-m.github.io/rsschool-cv/cv
